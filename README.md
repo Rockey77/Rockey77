@@ -1,7 +1,7 @@
-Hi, I’m Markus Oreliuos
-G.M World-wide sales operation
+Agro Foods Livestocks & farm Houses Industries 
+World-wide sales operation
 E-mail: agrofoodsgroup5@gmail.com
-I’m looking to collaborate on Internationally business partners 
+We are looking to collaborate on Internationally business partners 
 
 
 
